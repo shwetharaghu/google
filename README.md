@@ -20,4 +20,6 @@ i getup at 6:30 at mrng
 machha u wanna to live in this world u should do somthing
 i want to become good women being
 our pg is good and clean
-our classes is also good 
+our classes is also good
+bho is nice girl
+she is awesome girl 
