@@ -18,3 +18,6 @@ i felt very sad when she death
 hey raghu u r good and handsome 
 i getup at 6:30 at mrng
 machha u wanna to live in this world u should do somthing
+i want to become good women being
+our pg is good and clean
+our classes is also good 
