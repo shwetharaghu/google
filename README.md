@@ -27,3 +27,5 @@ my family is staying there only
 i have done engineering in sea
 i have done mtech in bit 
 im sufferuning too much when i was doing engineering and even mtech
+today bash was not collect mine documents
+im getting hurt
