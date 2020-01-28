@@ -29,3 +29,5 @@ i have done mtech in bit
 im sufferuning too much when i was doing engineering and even mtech
 today bash was not collect mine documents
 im getting hurt
+my father is everything for me
+even my mother is every thing for me
